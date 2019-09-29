@@ -85,22 +85,22 @@ Southeast Asia or Southeastern Asia is a subregion of Asia, ***consisting of the
 
 ***Mainland Southeast Asia includes:***
 
-Myanmar (Burma) \n
-Thailand \n
-Laos \n
-Cambodia \n
-Vietnam \n
-Peninsular Malaysia \n
+Myanmar (Burma) \
+Thailand \
+Laos \
+Cambodia \
+Vietnam \
+Peninsular Malaysia 
 
 
 ***Maritime Southeast Asia includes:***
 
-East Malaysia \n
-Singapore \n
-Brunei \n
-Indonesia \n
-Philippines \n
-East Timor \n
+East Malaysia \
+Singapore \
+Brunei \
+Indonesia \
+Philippines \
+East Timor 
 
 
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Southeast_Asia_%28orthographic_projection%29.svg/550px-Southeast_Asia_%28orthographic_projection%29.svg.png)
