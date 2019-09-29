@@ -24,3 +24,26 @@ It is also colloquially referred to as "the stans" as the countries generally co
 Map of Central Asia (including Afghanistan)
 
 ![](https://upload.wikimedia.org/wikipedia/commons/6/68/Map_of_Central_Asia.png)
+
+
+-----------------------------------------------------------------------------------------------------------------------
+
+2) https://en.wikipedia.org/wiki/East_Asia
+
+East Asia is the eastern subregion of Asia, defined in both geographical and ethno-cultural terms.The region includes ***China, Hong Kong, Macau, Japan, Mongolia, North Korea, South Korea and Taiwan***. People indigenous to the region are known as East Asians. ***China, Japan, Korea, and Vietnam belong to the East Asian cultural sphere.***
+
+![](https://upload.wikimedia.org/wikipedia/commons/a/ab/East_Asia_%28orthographic_projection%29.svg)
+
+
+
+China, Korea, Japan and Vietnam are culturally East Asian
+
+![](https://en.wikipedia.org/wiki/File:East_Asian_Cultural_Sphere.png)
+
+
+
+![](https://www.mapsofworld.com/asia/maps/map-of-east-asia.jpg)
+
+
+
+
