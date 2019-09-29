@@ -74,7 +74,43 @@ The current territories of ***Afghanistan, Bangladesh, Bhutan, Maldives, Nepal, 
 
 ----------------------------------------------------------------------------------------------------------------------
 
-5)
+5) https://en.wikipedia.org/wiki/Southeast_Asia
+
+Southeast Asia or Southeastern Asia is a subregion of Asia, ***consisting of the countries that are geographically south of China and Japan, east of India, west of Papua New Guinea, and north of Australia***.Southeast Asia is bordered to the north by East Asia, to the west by South Asia and the Bay of Bengal, to the east by Oceania and the Pacific Ocean, and to the south by Australia and the Indian Ocean. 
+
+***The region is the only part of Asia that lies partly within the Southern Hemisphere, although the majority of it is in the Northern Hemisphere.***
+
+
+***Southeast Asia is geographically divided into two subregions, namely Mainland Southeast Asia (or Indochina) and Maritime Southeast Asia***
+
+***Mainland Southeast Asia includes:***
+
+Myanmar (Burma) \n
+Thailand \n
+Laos \n
+Cambodia \n
+Vietnam \n
+Peninsular Malaysia \n
+
+
+***Maritime Southeast Asia includes:***
+
+East Malaysia \n
+Singapore \n
+Brunei \n
+Indonesia \n
+Philippines \n
+East Timor \n
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Southeast_Asia_%28orthographic_projection%29.svg/550px-Southeast_Asia_%28orthographic_projection%29.svg.png)
+
+
+
+
+
+
+
 
 
 
