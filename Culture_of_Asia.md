@@ -21,6 +21,10 @@ It is also colloquially referred to as "the stans" as the countries generally co
 ![](https://upload.wikimedia.org/wikipedia/commons/8/88/Central_Asia_%28orthographic_projection%29.svg)
 
 
+![](https://www.mapsofworld.com/asia/maps/map-of-central-asia.jpg)
+
+
+
 Map of Central Asia (including Afghanistan)
 
 ![](https://upload.wikimedia.org/wikipedia/commons/6/68/Map_of_Central_Asia.png)
