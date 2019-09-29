@@ -38,7 +38,7 @@ East Asia is the eastern subregion of Asia, defined in both geographical and eth
 
 China, Korea, Japan and Vietnam are culturally East Asian
 
-![](https://en.wikipedia.org/wiki/File:East_Asian_Cultural_Sphere.png)
+![East_Asian_Cultural_Sphere](https://en.wikipedia.org/wiki/File:East_Asian_Cultural_Sphere.png)
 
 
 
