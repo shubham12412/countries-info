@@ -49,5 +49,15 @@ China, Korea, Japan and Vietnam are culturally East Asian
 ![](https://www.mapsofworld.com/asia/maps/map-of-east-asia.jpg)
 
 
+-------------------------------------------------------------------------------------------------------------------
+
+3) https://en.wikipedia.org/wiki/North_Asia
+
+North Asia or Northern Asia, ***sometimes also referred to as Siberia or Eurasia***, is partly a subregion of Asia, ***consisting of the Russian regions east of the Ural Mountains: Siberia, Ural and the Russian Far East***. The region is sometimes also known as Asian Russia (as opposed to the smaller but more densely populated European Russia to the west).
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/c/c9/North_Asia_%28orthographic_projection%29.svg)
+
+
 
 
