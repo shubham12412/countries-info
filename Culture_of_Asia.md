@@ -118,6 +118,51 @@ East Timor
 
 
 
+---------------------------------------------------------------------------------------------------------------
+
+6) https://en.wikipedia.org/wiki/Western_Asia
+
+
+Western Asia, West Asia, Southwestern Asia or Southwest Asia is the westernmost subregion of Asia. ***The concept is in limited use, as it significantly overlaps with the Middle East*** (or the ***Near East***), ***the main difference usually being the exclusion of the majority of Egypt, which would be counted as part of North Africa (that is, Egypt without the Sinai Peninsula), and of European Turkey and the inclusion of the Caucasus***
+
+
+***Although the term "Western Asia" is mostly used as a convenient division of contemporary sovereign states into a manageable number of world regions for statistical purposes, it is sometimes used instead of the more geopolitical term "Middle East"***
+
+
+In an unrelated context, the term is also used in ancient history and archaeology to divide the Fertile Crescent into the "Asiatic" or "Western Asian" cultures as opposed to ancient Egypt. As a geographic concept, Western Asia includes the Levant, Mesopotamia, Anatolia, Iran, the Armenian Highlands, the South Caucasus, the Arabian peninsula as well as the Sinai Peninsula, making Egypt a transcontinental country.
+
+***The term is used pragmatically and has no "correct" or generally agreed-upon definition.*** The National Geographic Style Manual as well as Maddison's The World Economy: Historical Statistics (2003) by the Organisation for Economic Co-operation and Development (OECD) only includes ***Bahrain, Iran, Iraq, Israel, Jordan, Kuwait, Lebanon, Oman, Qatar, Palestinian territories (called West Bank and Gaza in the latter), Saudi Arabia, Syria, Turkey, UAE, and Yemen*** as West Asian countries.
+
+***In contrast to this definition, the United Nations Industrial Development Organization (UNIDO) in its 2015 yearbook also includes Armenia and Azerbaijan, and excludes Israel (as Other) and Turkey (as Europe)***.Unlike the UNIDO, the United Nations Statistics Division (UNSD) excludes Iran from Western Asia and includes Turkey, Georgia, and Cyprus in the region.In the United Nation's geopolitical Eastern European Group, Armenia and Georgia are included in Eastern Europe, whereas Cyprus and East Thracian Turkey are in Southern Europe.
+
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/d/d3/Western_Asia.png)
+
+
+![](https://www.mapsofworld.com/asia/maps/western-asia.jpg)
+
+
+![](https://www.mapsofindia.com/maps-of-asia/west-asia-political-map.jpg)
+
+
+![](http://ontheworldmap.com/asia/map-of-west-asia.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
