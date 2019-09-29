@@ -149,6 +149,17 @@ In an unrelated context, the term is also used in ancient history and archaeolog
 ![](http://ontheworldmap.com/asia/map-of-west-asia.jpg)
 
 
+Western Asia is located directly south of Eastern Europe. ***The region is surrounded by seven major seas; the Aegean Sea, the Black Sea, the Caspian Sea, the Persian Gulf, the Arabian Sea, the Red Sea, and the Mediterranean Sea.**
+
+Numerically, ***Western Asia is predominantly Arab, Persian, Turkish, and the dominating languages are correspondingly Arabic, Persian and Turkish, each with of the order of 70 million speakers***, followed by smaller communities of Kurdish, Azerbaijani, Hebrew, Armenian and Eastern Aramaic.
+
+
+**The dominance of Arabic and Turkish is the result of the medieval Arab and Turkic invasions beginning with the Islamic conquests of the 7th century AD, which displaced the formerly dominant Aramaic and Hebrew in the Levant, and Greek in Anatolia***, although Hebrew is once again the dominant language in Israel, and Aramaic (spoken largely by Chaldeans, Arameans and Assyrians) and Greek both remain present in their respective territories as minority languages.
+
+
+
+
+
 
 
 
