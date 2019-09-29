@@ -31,6 +31,6 @@ In modern academic usage, the term Mesopotamia often also has a chronological co
 
 
 
-***The region was one of the four riverine civilizations where writing was invented, along with the Nile valley in Egypt, the Indus Valley Civilization in the Indian subcontinent, and the Yellow River in China. **
+***The region was one of the four riverine civilizations where writing was invented, along with the Nile valley in Egypt, the Indus Valley Civilization in the Indian subcontinent, and the Yellow River in China.***
 
 
