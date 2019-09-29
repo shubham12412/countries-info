@@ -59,5 +59,23 @@ North Asia or Northern Asia, ***sometimes also referred to as Siberia or Eurasia
 ![](https://upload.wikimedia.org/wikipedia/commons/c/c9/North_Asia_%28orthographic_projection%29.svg)
 
 
+--------------------------------------------------------------------------------------------------------------------
+
+4) https://en.wikipedia.org/wiki/South_Asia
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7c/South_Asia_%28orthographic_projection%29.svg/800px-South_Asia_%28orthographic_projection%29.svg.png)
+
+The current territories of ***Afghanistan, Bangladesh, Bhutan, Maldives, Nepal, India, Pakistan, and Sri Lanka*** form South Asia.The South Asian Association for Regional Cooperation (SAARC) is an economic cooperation organisation in the region which was established in 1985 and includes all eight nations comprising South Asia
+
+
+
+![](https://www.mapsofindia.com/maps-of-asia/south-asia-political-map.jpg)
+
+----------------------------------------------------------------------------------------------------------------------
+
+5)
+
+
 
 
