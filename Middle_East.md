@@ -25,6 +25,8 @@ The Greater Middle East was a political term coined by the second Bush administr
 The Middle East lies at the juncture of Eurasia and Africa and of the Mediterranean Sea and the Indian Ocean.
 
 
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Oil_and_Gas_Infrastructure_Persian_Gulf_%28large%29.gif/681px-Oil_and_Gas_Infrastructure_Persian_Gulf_%28large%29.gif)
+
 
 
 
