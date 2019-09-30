@@ -3,6 +3,27 @@ https://en.wikipedia.org/wiki/List_of_largest_empires
 https://nationalinterest.org/feature/the-5-most-powerful-empires-history-12296
 
 
+
+
+1) Achaemenid_Empire  : The First Persian Empire     50 BC–330 BC
+
+2) Roman Empire : 27 BC – 476 AD (traditional dates)
+
+395 AD – 480 AD (Western)
+395 AD – 1453 AD (Eastern)
+
+3) Caliphate
+
+Rashidun_Caliphate : 632 - 661
+Umayyad_Caliphate : 661–750
+
+4) Mongol Empire : 1206–1368
+
+5) 
+
+
+
+
 ------------------------------------------------------------------------------------------------------------------
 
 ***achaemenid Empire***
@@ -126,6 +147,8 @@ Expansion of the Mongol Empire 1206–1294 superimposed on a modern political ma
 ![](https://upload.wikimedia.org/wikipedia/commons/f/f4/MongolEmpire.jpg)
 
 
+
+-----------------------------------------------------------------------------------------------------------------
 
 
 
