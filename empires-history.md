@@ -31,6 +31,13 @@ The Achaemenid Empire at its greatest extent, c. 500 BC
 ![](http://iranpoliticsclub.net/maps/images/055%20Seleucid%20Empire%20&%20Parthian%20Kingdom%20250%20BC%20Map.jpg)
 
 
+
+***Upon Alexander's death in 323 BC, his empire was divided among his generals, the Diadochi, resulting in a number of smaller states***. The largest of these, which held sway over the Iranian plateau, was the Seleucid Empire, ruled by Alexander's general Seleucus I Nicator. Native Iranian rule would be restored by the Parthians of northeastern Iran over the course of the 2nd century BC.
+
+
+
+
+
 -----------------------------------------------------------------------------------------------------------------------
 
 
