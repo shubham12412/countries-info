@@ -23,5 +23,15 @@ The Achaemenid Empire at its greatest extent, c. 500 BC
 
 
 
+![](https://i.ytimg.com/vi/jw9m5sgMxuM/maxresdefault.jpg)
+
+![](https://external-preview.redd.it/VdxPiLHCveUMinRcAVKzXG6cl73Im6iGXfPKY7a-1GI.jpg?auto=webp&s=73dd3210dacdd380dbd2e1430006546ada017f35)
+
+
+![](http://iranpoliticsclub.net/maps/images/055%20Seleucid%20Empire%20&%20Parthian%20Kingdom%20250%20BC%20Map.jpg)
+
+
+-----------------------------------------------------------------------------------------------------------------------
+
 
 
