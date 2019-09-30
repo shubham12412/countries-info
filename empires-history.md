@@ -35,10 +35,31 @@ The Achaemenid Empire at its greatest extent, c. 500 BC
 ***Upon Alexander's death in 323 BC, his empire was divided among his generals, the Diadochi, resulting in a number of smaller states***. The largest of these, which held sway over the Iranian plateau, was the Seleucid Empire, ruled by Alexander's general Seleucus I Nicator. Native Iranian rule would be restored by the Parthians of northeastern Iran over the course of the 2nd century BC.
 
 
+The (First) Persian Empire
+
+The Achaemenid Persian Empire was founded by Cyrus the Great around 550 B.C.E., who went by the title of King of Kings (Shahanshah). Although the Persian Empire came to an inglorious end at the hands of Alexander the Great in 330 B.C.E., it had a lasting legacy on the subsequent development of world civilizations and future empires.
 
 
 
 -----------------------------------------------------------------------------------------------------------------------
+
+***Roman Empire***
+
+***The Roman Empire  was the post-Republican period of ancient Rome, consisting of large territorial holdings around the Mediterranean sea in Europe, North Africa and West Asia ruled by emperors. From the accession of Caesar Augustus to the military anarchy of the third century, it was a principate with Italy as metropole of the provinces and its city of Rome as sole capital (27 BC – 286 AD). The Roman Empire was then ruled by multiple emperors*** and divided into a Western Roman Empire, based in Milan and later Ravenna, and an Eastern Roman Empire, based in Nicomedia and later Constantinople. 
+
+
+***Rome remained the nominal capital of both parts until 476 AD, when it sent the imperial insignia to Constantinople (Byzantium in Ancient Greek) following the capture of Ravenna by the barbarians of Odoacer and the subsequent deposition of Romulus Augustus. The fall of the Western Roman Empire to Germanic kings, along with the hellenization of the Eastern Roman Empire into the Byzantine Empire, is conventionally used to mark the end of Ancient Rome and the beginning of the Middle Ages.***
+
+
+![](https://www.worldatlas.com/r/w728-h425-c728x425/upload/a4/4b/c9/shutterstock-203589544-1.jpg)
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/00/Roman_Empire_Trajan_117AD.png/1200px-Roman_Empire_Trajan_117AD.png)
+
+
+--------------------------------------------------------------------------------------------------------------------
+
+
 
 
 
