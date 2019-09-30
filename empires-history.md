@@ -112,7 +112,18 @@ https://en.wikipedia.org/wiki/Mongol_Empire
 ***The Mongol Empire emerged from the unification of several nomadic tribes in the Mongol homeland under the leadership of Genghis Khan (c.  1162 - 1227), whom a council proclaimed ruler of all the Mongols in 1206. The empire grew rapidly under his rule and that of his descendants, who sent out invading armies in every direction.***
 
 
+Expansion of the Mongol Empire 1206–1294 superimposed on a modern political map of Eurasia
+
 ![](https://upload.wikimedia.org/wikipedia/commons/b/bc/Mongol_Empire_map_2.gif)
+
+
+![](https://www.tonymappedit.com/wp-content/uploads/2019/04/mongol-empire-map-genghis-khan-768x430.jpg)
+
+
+![](https://static.mapsofindia.com/maps/mongol-dynasty-map.jpg)
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/f/f4/MongolEmpire.jpg)
 
 
 
