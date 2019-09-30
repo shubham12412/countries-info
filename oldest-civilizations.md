@@ -9,3 +9,15 @@
 
 
 
+
+https://www.worldatlas.com/articles/10-of-the-world-s-oldest-civilizations.html
+
+
+
+https://www.worldatlas.com/articles/where-was-mesopotamia-located.html
+
+***Mesopotamia is a term used to refer to a medieval region located on the banks of the Tigris and Euphrates Rivers, which now lies in the modern-day Middle East. The region corresponds to most parts of modern day Iraq as well as parts of Iran, Kuwait, Syria, and Turkey.***
+
+
+
+
