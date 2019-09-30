@@ -56,8 +56,48 @@ The Achaemenid Persian Empire was founded by Cyrus the Great around 550 B.C.E., 
 
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/00/Roman_Empire_Trajan_117AD.png/1200px-Roman_Empire_Trajan_117AD.png)
 
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2d/Invasions_of_the_Roman_Empire_1.png/800px-Invasions_of_the_Roman_Empire_1.png)
+
+
+The Eastern Roman (Byzantine) Empire c. 1025
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Byzantine_Empire_1025_AD.png/800px-Byzantine_Empire_1025_AD.png)
+
 
 --------------------------------------------------------------------------------------------------------------------
+
+***The Caliphate***
+
+***The Arab Empire, also known as the Caliphate, was a political entity founded by the Muslim Prophet Muhammad that encompassed most of Arabia by the time of his death in 632 C.E. It is more reasonable to call this the Arab Empire rather than the Muslim Empire because while Islam originated and spread because of this empire, there were many subsequent empires that were legally Muslim or ruled by Muslims but were not Arab.***
+
+Muhammad was succeeded by the four Rightly-Guided Caliphs (“successors”) who were selected by consensus and acclimation (though not undisputed) until 661 C.E. The hereditary Umayyad Caliphate then ruled until 750 C.E., followed by the Abbasid Caliphate, though conquests had ended by this point. The Arab Empire effectively ended around 900 C.E., although the Abbasids maintained their religious role as figurehead Caliphs in Baghdad until the destruction of that city by the Mongols in 1258 C.E. After 900 C.E., the empire began to crumble politically with the rise of rival dynasties, many of them Turkic and Persian in origin, as well as rival Caliphates in Spain and Egypt.
+
+
+
+A caliphate is an Islamic state under the leadership of an Islamic steward with the title of caliph , a person considered a political-religious successor to the Islamic prophet Muhammad and a leader of the entire ummah (Muslim community). Historically, the caliphates were polities based in Islam which developed into multi-ethnic trans-national empires. During the medieval period, three major caliphates succeeded each other: the Rashidun Caliphate (632–661), the Umayyad Caliphate (661–750) and the Abbasid Caliphate (750–1258). In the fourth major caliphate, the Ottoman Caliphate, the rulers of the Ottoman Empire claimed caliphal authority from 1517. During the history of Islam, a few other Muslim states, almost all hereditary monarchies, have claimed to be caliphates
+
+
+![](http://www.bozbat.com/wp-content/uploads/2018/01/73db36175ab6a0b62fa11479fbe6327a.jpg)
+
+
+![](https://s3.amazonaws.com/user-media.venngage.com/279584-0946bc5b165aa73dd6451d7f0991c1d0.jpg)
+
+
+
+https://en.wikipedia.org/wiki/Umayyad_Caliphate
+
+
+
+The Umayyad Caliphate at its greatest extent in AD 750
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5b/Umayyad750ADloc.png/800px-Umayyad750ADloc.png)
+
+
+
+
+----------------------------------------------------------------------------------------------------------------
+
+
 
 
 
