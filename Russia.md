@@ -34,4 +34,13 @@ the Russian SFSR reconstituted itself as the Russian Federation and is recognize
 
 
 
+![](http://s3-us-west-2.amazonaws.com/ktoo/2014/03/map-soviet-republics-624.png)
+
+
+![](http://photos1.blogger.com/blogger/3679/1191/1600/.jpg)
+
+
+![](https://cdn.britannica.com/s:700x450/41/183741-050-0FE7D7E8/World-Data-Locator-Map-Russia.jpg)
+
+
 
