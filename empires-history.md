@@ -97,6 +97,24 @@ The Umayyad Caliphate at its greatest extent in AD 750
 
 ----------------------------------------------------------------------------------------------------------------
 
+***The Mongol Empire***
+
+The Mongol Empire was another empire that originated on the periphery, and against all odds, defeated enemies much more powerful and populous than it. ***It was the world’s largest contiguous land empire, one that struck terror into all its enemies. Founded by the Mongol warlord Temujin, who assumed the title of Genghis Khan in 1206 C.E.***, the Mongol Empire first grew by picking off parts of China, as many previous steppe tribes had done.
+
+Although there were only about two million Mongols in the whole world, they subsequently conquered most of the Middle East, Russia, and China under Genghis Khan’s descendants. During their heyday, they suffered few setbacks except for their failed invasion of Japan and the 1260 C.E. Battle of Ain Jalut against the Egyptian Mamluks. 
+
+https://en.wikipedia.org/wiki/Mongol_Empire
+
+
+***The Mongol Empire existed during the 13th and 14th centuries; it became the largest contiguous land empire in history***. Originating in Mongolia, the Mongol Empire eventually stretched from Eastern Europe and parts of Central Europe to the Sea of Japan, extending northwards into Siberia; eastwards and southwards into the Indian subcontinent, Mainland Southeast Asia and the Iranian Plateau; and westwards as far as the Levant and the Carpathian Mountains.
+
+
+***The Mongol Empire emerged from the unification of several nomadic tribes in the Mongol homeland under the leadership of Genghis Khan (c.  1162 - 1227), whom a council proclaimed ruler of all the Mongols in 1206. The empire grew rapidly under his rule and that of his descendants, who sent out invading armies in every direction.***
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/b/bc/Mongol_Empire_map_2.gif)
+
+
 
 
 
