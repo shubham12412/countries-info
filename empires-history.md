@@ -19,7 +19,7 @@ Umayyad_Caliphate : 661–750
 
 4) Mongol Empire : 1206–1368
 
-5) 
+5) British_Empire : (~1583 - 1981)
 
 
 
@@ -150,8 +150,22 @@ Expansion of the Mongol Empire 1206–1294 superimposed on a modern political ma
 
 -----------------------------------------------------------------------------------------------------------------
 
+https://en.wikipedia.org/wiki/British_Empire
+
+All areas of the world that were ever part of the British Empire. Current British Overseas Territories have their names underlined in red.
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/The_British_Empire.png/800px-The_British_Empire.png)
 
 
 
 
+The British Empire at its territorial peak in 1921
 
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b8/British_Empire_1921.png/800px-British_Empire_1921.png)
+
+
+
+
+The fourteen British Overseas Territories
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Location_of_the_BOTs.svg/735px-Location_of_the_BOTs.svg.png)
