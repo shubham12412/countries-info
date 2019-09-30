@@ -8,3 +8,8 @@ The Mediterranean Sea is a sea connected to the Atlantic Ocean, surrounded by th
 
 
 
+![](https://www.google.com/maps/d/u/0/thumbnail?mid=1rcj1mUZmtMhyCMLEDuTwvlLDTHo)
+
+
+![](https://geography.name/wp-content/uploads/2015/10/mediterranean-map-640x324.webp)
+
