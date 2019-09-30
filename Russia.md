@@ -17,17 +17,17 @@ Extending across the entirety of Northern Asia and much of Eastern Europe, ***Ru
 
 
 ***Following the dissolution of the Soviet Union in 1991, twelve independent republics emerged from the USSR: 
-Russia, \ 
+Russia, \
 Ukraine, \
 Belarus, \
-Kazakhstan, \ 
+Kazakhstan, \
 Uzbekistan, \
 Armenia, \
-Azerbaijan, \ 
+Azerbaijan, \
 Georgia, \
-Kyrgyzstan, \ 
+Kyrgyzstan, \
 Moldova, \
-Tajikistan, \ 
+Tajikistan, \
 Turkmenistan \
 and the Baltic states regained independence: Estonia, Latvia, Lithuania***;  \
 the Russian SFSR reconstituted itself as the Russian Federation and is recognized as the continuing legal personality and a successor of the Soviet Union.
