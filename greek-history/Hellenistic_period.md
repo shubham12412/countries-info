@@ -18,6 +18,12 @@ This resulted in the export of Greek culture and language to these new realms, s
 "Hellenistic" is distinguished from "Hellenic" in that the first encompasses the entire sphere of direct ancient Greek influence, while the latter refers to Greece itself.
 
 
+***After Alexander death (323 BC), the huge territories Alexander had conquered became subject to a strong Greek influence (Hellenization) for the next two or three centuries, until the rise of Rome in the west, and of Parthia in the east.*** 
+
+
+The distribution of satrapies in the Macedonian Empire after the Settlement in Babylon (323 BC).
+
+![](https://upload.wikimedia.org/wikipedia/commons/1/15/Diadochi_satraps_babylon.png)
 
 
 
