@@ -41,5 +41,15 @@ The Hellenistic period came to an end with the conquests and annexations of the 
 
 
 
+6) https://en.wikipedia.org/wiki/Alexandria
+
+Alexandria is the second-largest city in Egypt and a major economic centre, extending about 32 km along the coast of the Mediterranean Sea in the north central part of the country.
+
+***Alexandria was founded around a small, ancient Egyptian town  332 BC by Alexander the Great,king of Macedon and leader of the Greek League of Corinth, during his conquest of the Achaemenid Empire.***
+
+***Alexandria became an important center of Hellenistic civilization and remained the capital of Ptolemaic Egypt and Roman and Byzantine Egypt for almost 1,000 years, until the Muslim conquest of Egypt in AD 641.***
+
+Alexandria was at one time the second most powerful city of the ancient Mediterranean region, after Rome. 
+
 
 
