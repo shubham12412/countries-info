@@ -1,3 +1,21 @@
+0) Roman Empire
+https://en.wikipedia.org/wiki/Roman_Empire
+
+![](https://upload.wikimedia.org/wikipedia/commons/0/00/Roman_Empire_Trajan_117AD.png)
+
+27 BC – 476 AD (traditional dates)
+
+395 AD – 480 AD (Western)
+
+395 AD – 1453 AD (Eastern)
+
+
+
+
+
+-------------------------------------------------------------------------------------------------------------------
+
+
 1) Byzantine_Empire
 https://en.wikipedia.org/wiki/Byzantine_Empire
 
@@ -30,4 +48,5 @@ By 650 (pictured) the empire had lost all its southern provinces, except the Exa
 
 -------------------------------------------------------------------------------------------------------------------------
 
+2) 
 
