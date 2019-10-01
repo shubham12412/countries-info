@@ -12,3 +12,7 @@ Map showing events of the first phases of the Greco-Persian Wars.
 
 
 2) http://www.history-for-kids.com/ancient-greece-for-kids.html
+
+3) https://www.nationalgeographic.org/encyclopedia/greek-city-states/
+
+4) 
