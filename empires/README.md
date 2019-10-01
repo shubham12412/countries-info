@@ -67,7 +67,9 @@ The Ottoman Empire at its greatest extent in Europe, under Sultan Mehmed IV in t
 ![](https://upload.wikimedia.org/wikipedia/en/2/2b/OttomanEmpireMain.png)
 
 
- 
+----------------------------------------------------------------------------------------------------------------------
+
+3) 
 
 
 
