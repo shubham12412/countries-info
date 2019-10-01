@@ -48,5 +48,26 @@ By 650 (pictured) the empire had lost all its southern provinces, except the Exa
 
 -------------------------------------------------------------------------------------------------------------------------
 
-2) 
+2) Ottoman Empire
+https://en.wikipedia.org/wiki/Ottoman_Empire
+
+1299–1922/1923
+
+***The Ottoman Empire historically known to its inhabitants and the Eastern world as Rome and known in Western Europe as the Turkish Empire or simply Turkey, was a state that controlled much of Southeast Europe, Western Asia and North Africa between the 14th and early 20th centuries.***
+
+It was founded at the end of the 13th century in northwestern Anatolia( Asian Turkey).
+
+After 1354, the Ottomans crossed into Europe, and with the conquest of the Balkans, the Ottoman beylik was transformed into a transcontinental empire. The Ottomans ended the Byzantine Empire with the 1453 conquest of Constantinople by Mehmed the Conqueror.
+
+With Constantinople as its capital and control of lands around the Mediterranean basin, the Ottoman Empire was at the centre of interactions between the Eastern and Western worlds for six centuries.
+
+
+The Ottoman Empire at its greatest extent in Europe, under Sultan Mehmed IV in the late 17th century
+
+![](https://upload.wikimedia.org/wikipedia/en/2/2b/OttomanEmpireMain.png)
+
+
+ 
+
+
 
