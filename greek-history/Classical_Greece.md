@@ -17,6 +17,8 @@ Political geography of ancient Greece in the Archaic and Classical periods.
 
 ***5th century BC***
 
+0) ***one might consider that the first significant event of this century occurs in 508 BC, with the fall of the last Athenian tyrant and Cleisthenes' reforms.***
+
 
 1) ***Ionian Revolt of 500 BC, the event that provoked the Persian invasion of 492 BC. The Persians were defeated in 490 BC.***
 
@@ -43,6 +45,11 @@ https://en.wikipedia.org/wiki/Peloponnesian_War
 
 ***The Peloponnesian War (431–404 BC) was an ancient Greek war fought by the Delian League led by Athens against the Peloponnesian League led by Sparta.***
 
+
+Result \
+Peloponnesian League victory \
+Thirty Tyrants installed in Athens \
+Spartan hegemony 
 
 -----------------------------------------------------------------------------------------------------------------------
 
