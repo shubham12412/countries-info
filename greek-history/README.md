@@ -15,4 +15,6 @@ Map showing events of the first phases of the Greco-Persian Wars.
 
 3) https://www.nationalgeographic.org/encyclopedia/greek-city-states/
 
-4) 
+4) https://en.wikipedia.org/wiki/Syracuse,_Sicily
+
+
