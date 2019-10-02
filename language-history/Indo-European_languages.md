@@ -30,3 +30,11 @@ https://en.wikipedia.org/wiki/File:Indo-European_branches_map.svg
 ![](https://upload.wikimedia.org/wikipedia/commons/e/eb/Indo-European_branches_map.svg)
 
 
+
+
+Present distribution
+
+![](https://upload.wikimedia.org/wikipedia/commons/8/80/Indo-European-speaking_world.png)
+
+
+
