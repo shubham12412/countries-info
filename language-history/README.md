@@ -23,3 +23,9 @@ Distribution of the Afro-Asiatic languages; pale yellow signifies areas without 
 Map showing the distribution of major Niger–Congo languages. Pink-red is the Bantu subfamily.
 
 ![](https://upload.wikimedia.org/wikipedia/commons/d/db/Map_of_the_Niger%E2%80%93Congo_languages.svg)
+
+
+4) https://en.wikipedia.org/wiki/Sino-Tibetan_languages
+
+![](https://upload.wikimedia.org/wikipedia/commons/0/0f/Major_Sino-Tibetan_groups.png)
+
