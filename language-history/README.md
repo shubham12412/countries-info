@@ -29,3 +29,9 @@ Map showing the distribution of major Niger–Congo languages. Pink-red is the B
 
 ![](https://upload.wikimedia.org/wikipedia/commons/0/0f/Major_Sino-Tibetan_groups.png)
 
+
+5) https://en.wikipedia.org/wiki/Austroasiatic_languages
+
+![](https://upload.wikimedia.org/wikipedia/commons/8/8e/Austroasiatic-en.svg)
+
+
