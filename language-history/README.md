@@ -1,3 +1,9 @@
+0) https://en.wikipedia.org/wiki/Language_family
+
+![](https://upload.wikimedia.org/wikipedia/commons/b/b7/Primary_Human_Languages_Improved_Version.png)
+
+
+
 1) https://en.wikipedia.org/wiki/Indo-European_languages
 
 
