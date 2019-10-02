@@ -15,3 +15,6 @@ Turkic languages show some similarities with the Mongolic, Tungusic, Koreanic, a
 
 
 
+
+![](https://upload.wikimedia.org/wikipedia/commons/7/73/TurkicLanguages.png)
+
