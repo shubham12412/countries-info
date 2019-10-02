@@ -70,6 +70,10 @@ Distribution of Austronesian languages
 ![](https://upload.wikimedia.org/wikipedia/commons/6/6e/Linguistic_map_of_the_Mongolic_languages.png)
 
 
+10) https://en.wikipedia.org/wiki/Turkic_languages
+
+![](https://upload.wikimedia.org/wikipedia/commons/9/99/TurkicLanguagemap.png)
+
 
 
 
