@@ -65,6 +65,10 @@ Distribution of Austronesian languages
 
 
 
+9) https://en.wikipedia.org/wiki/Mongolic_languages
+
+![](https://upload.wikimedia.org/wikipedia/commons/6/6e/Linguistic_map_of_the_Mongolic_languages.png)
+
 
 
 
