@@ -17,3 +17,9 @@ Distribution of the Afro-Asiatic languages; pale yellow signifies areas without 
 ![](https://upload.wikimedia.org/wikipedia/commons/2/24/Hamito-Semitic_languages.jpg)
 
 
+
+3) https://en.wikipedia.org/wiki/Niger%E2%80%93Congo_languages
+
+Map showing the distribution of major Niger–Congo languages. Pink-red is the Bantu subfamily.
+
+![](https://upload.wikimedia.org/wikipedia/commons/d/db/Map_of_the_Niger%E2%80%93Congo_languages.svg)
