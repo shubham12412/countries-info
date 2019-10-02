@@ -58,3 +58,14 @@ Distribution of Austronesian languages
 
 ![](https://upload.wikimedia.org/wikipedia/commons/d/d3/Dravidian_subgroups.png)
 
+
+8) https://en.wikipedia.org/wiki/Kra%E2%80%93Dai_languages
+
+![](https://upload.wikimedia.org/wikipedia/commons/7/71/Taikadai-en.svg)
+
+
+
+
+
+
+
