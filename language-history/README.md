@@ -1,3 +1,6 @@
+https://en.wikipedia.org/wiki/List_of_languages_by_number_of_native_speakers
+
+
 0) https://en.wikipedia.org/wiki/Language_family
 
 ![](https://upload.wikimedia.org/wikipedia/commons/b/b7/Primary_Human_Languages_Improved_Version.png)
