@@ -35,3 +35,8 @@ Map showing the distribution of major Niger–Congo languages. Pink-red is the B
 ![](https://upload.wikimedia.org/wikipedia/commons/8/8e/Austroasiatic-en.svg)
 
 
+6) https://en.wikipedia.org/wiki/Austronesian_languages
+
+Distribution of Austronesian languages
+
+![](https://upload.wikimedia.org/wikipedia/commons/f/f0/Austroneske_jazyky.jpg)
