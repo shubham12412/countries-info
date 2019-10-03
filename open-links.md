@@ -15,3 +15,6 @@ https://medium.com/understanding-reality/were-the-pyramids-power-plants-95fd2eba
 gaia.com/article/were-great-pyramids-once-used-transmit-energy
 
 
+https://en.wikipedia.org/wiki/New7Wonders_of_the_World
+
+
