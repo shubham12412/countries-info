@@ -32,3 +32,35 @@ Since the Age of Discovery started by Portugal and Spain, Europe played a predom
 ![](https://i.pinimg.com/originals/20/0e/9f/200e9fe3212a26519f84c1bfe9ca5f93.gif)
 
 
+
+-------------------------------------------------------------------------------------------------------------------
+
+![](https://upload.wikimedia.org/wikipedia/commons/c/c0/Grossgliederung_Europas-en.svg)
+
+
+
+
+
+1) https://en.wikipedia.org/wiki/Central_Europe
+
+Central Europe occupies continuous territories that are otherwise sometimes considered parts of Western Europe, Southern Europe, and Eastern Europe. ***The concept of Central Europe is based on a common historical, social, and cultural identity.***
+
+Austria \
+Czech Republic \
+Germany \
+Hungary \
+Liechtenstein \
+Poland \
+Slovakia \
+Switzerland 
+
+![](https://upload.wikimedia.org/wikipedia/commons/1/16/Central_Europe_%28Brockhaus%29.svg)
+
+![](https://upload.wikimedia.org/wikipedia/commons/5/5a/Central_Europe_Regions.png)
+
+
+ 
+ 
+
+
+
