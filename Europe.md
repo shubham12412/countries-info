@@ -67,6 +67,14 @@ Though the term Western Europe is commonly used, there is no consensus on which 
 
 ![](https://www.peakdmc.com/sites/default/files/inline-images/western-europe-map.png)
 
+Belgium \
+France \
+Ireland \
+Luxembourg \
+Monaco \
+Netherlands \
+United Kingdom
+
 
 3) https://en.wikipedia.org/wiki/Southern_Europe
 
