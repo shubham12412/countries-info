@@ -60,7 +60,55 @@ Switzerland
 
 
  
- 
+
+2) https://en.wikipedia.org/wiki/Western_Europe
+
+Though the term Western Europe is commonly used, there is no consensus on which countries it comprise.
+
+![](https://www.peakdmc.com/sites/default/files/inline-images/western-europe-map.png)
+
+
+3) https://en.wikipedia.org/wiki/Southern_Europe
+
+***Most definitions of Southern Europe, also known as Mediterranean Europe***, include Italy, Portugal, Malta, Corsica, Greece, Croatia, Bosnia and Herzegovina, Montenegro, Albania, Slovenia, Spain, East Thrace of European Turkey, Cyprus and Northern Cyprus, Andorra, Vatican City, San Marino, Serbia, Kosovo and North Macedonia are also often included despite not having a coast in the Mediterranean.
+
+
+
+
+![](https://upload.wikimedia.org/wikipedia/commons/d/de/Southern_Europe_-_Broad_definition.png)
+
+![](peakdmc.com/sites/default/files/inline-images/southern-europe-map.png)
+
+
+![](https://www.mapsofworld.com/europe/country-groupings/map-of-southern-europe.gif)
+
+
+
+4) https://en.wikipedia.org/wiki/Southeast_Europe
+
+***Southeast Europe or Southeastern Europe (SEE) is a geographical region of Europe, consisting primarily of the coterminous Balkan Peninsula.***  Sovereign states that are, at least partially, included in the region are, in alphabetical order: Albania, Bosnia and Herzegovina, Bulgaria, Croatia, Greece, Kosovo,[a] Montenegro, North Macedonia, Romania, Serbia, Slovenia, and East Thrace (part of Turkey).
+
+![](https://upload.wikimedia.org/wikipedia/commons/3/31/Balkan_Peninsula.svg)
+
+
+![](https://i.pinimg.com/originals/1d/31/62/1d3162cca62e95606375c37b9faf3afe.jpg)
+
+
+5) https://en.wikipedia.org/wiki/Eastern_Europe
+
+![](https://www.mapsofworld.com/europe/country-groupings/map-of-eastern-europe.jpg)
+
+
+6) https://en.wikipedia.org/wiki/Northern_Europe
+
+![](https://st3.depositphotos.com/2465573/18500/v/1600/depositphotos_185000400-stock-illustration-regions-of-europe-political-map.jpg)
+
+
+Denmark \
+Finland \
+Iceland \
+Norway \
+Sweden
 
 
 
